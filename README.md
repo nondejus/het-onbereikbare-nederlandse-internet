@@ -1,2 +1,10 @@
+
 # het-onbereikbare-nederlandse-internet
-auto-update: elke dag toegangs blokkades +( 2020 juni 28 )
+
+hollandse nieuwe
+vodaphone
+paid subscription 
+internet acces blocking
+10 mintes
+several times a day
+
